@@ -7,6 +7,7 @@
 ### Phone: +7(980) 246 -- --
 
 ### e-mail: xaoc190789@gmail.com
+### Telegramm: SlashX6
 
 
 ## My Goal
